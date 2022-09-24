@@ -3,4 +3,4 @@
 
 For the time being, lets just say it was pleasure finding you out here :p
 
-Reach out at : prabh1601@gmail.com
+Reach out at : connect@prabh.tech
